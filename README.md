@@ -1,8 +1,11 @@
-## Welcome to GitHub Pages
+## Talking Stick
 
-You can use the [editor on GitHub](https://github.com/Mymanblackness/Talking-Stick/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
+"_...i got a story to tell, uh_"
 
-Whenever you commit to this repository, GitHub Pages will run [Jekyll](https://jekyllrb.com/) to rebuild the pages in your site, from the content in your Markdown files.
+What it is party people!! My name is Marcos Lewis and welcome to Talking Stick! This is a space where i get to share my love of storytelling with you. Primarilly you'll find original stories i have written. Ifind my work flows best when spoken ,so there will be an audio file with each work allowing you to hear each piece.  
+
+
+
 
 ### Markdown
 
