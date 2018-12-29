@@ -64,6 +64,45 @@ Then an outrigger came ashore on the beach. It had a large mast with several sai
 <iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/551353839&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
 
 
+##Dad and the slow motion spanking
+
+There are three boys in my family: Roberto, 15, stocky. Me, 10, rounded and Xavier, 6, lean and just as tall as me. 
+So One night Roberto says "yo, I'm going to the movies, you want to come?" 
+
+Of course I say. I ahout to my parents who are down the hall, in the living room out of sight of the proceedings amazingly they say yes 
+so Xav steps up and says "I want to go" An idea immediately shot down by my Mom. Xav wasn't happy.
+
+Roberto says firmly with "no Xav, its rated R, and you're too young to see those kinds of movies" 
+
+now granted I'M too young to see those kinds of movies but I had an excellent track record of no bed wetting, nightmares, abnormally aggressive behavior, violent play or any other indicator that the fantasy/reality line was blurred, so I'm good!
+
+Ladies and gentlemen, let me draw your attention to one very significant point. At this moment...I've won. Not only am I going to a rated R movie, on a school night with my older brother , but Xavier can't. In the annuals of sibling rivalry this is a tick in my favor...but it's not enough . Sadly I can't simply allow him to lose, I had to have a hand in crushing him. And that was my undoing. 
+
+Xav start going back and forth "I want to go!" ,"YOU CANT GO!" 
+"On second thought" my Dad says " Roberto why don't you take both of them and see a G movie instead." 
+And just like that I lost, tick taken away
+
+Our fighting only grew. Verbal jabs became shoves, next thing we're wrestling with Dad shouting threats from the living room for us to stops 
+
+Suddenly, all sound seemed to be sucked from the space and time moved in slow motion. I gaze down the hall and see my Dad coming around the corner looking like an Olympic sprinter. High knees, pumping his arms with his game face, or in this case ass whooping face on.
+
+Xav and I begin to panic like drug dealers in a creak house during a raid. I don't try to run. As a child of black parents I know running always makes it worse. I drop to the ground, cover my head and wait for lighting to strike. 
+
+He's on top of us in what seemed like three steps. Peeking under my raised elbow I see my dad passing me by heading for Xav, who was making a break for his room at the end of the hall. Ha, kids, He didn't make it. With a running form which mirrored my father's, Xav gets one stride then he is hoisted up in the air by his left wrist Xav get a slap the butt so hard he contracts in to the fetal position. My Dad then released Xav in mid air and turned to me. 
+
+I watched in awe. Amazed by my dads speed and frightened by his power, I am frozen in my crouch position. Seeing the open hall in front of me I get an ounce of Xav's bravery or maybe stupidityand make a run for it, keeping my hands close to my sides so as to not suffer the same fate. Suddenly the collar on my shirt becomes tight as if caught on a hook. I try to think fast but my thought is interrupted by a jolt and then a searing pain  emanating from my butt. It quickly spread to my legs and I know I am undone.
+
+As Xav and I hit the ground at the same time. The world seemed to quickly regain it's normal speed. The sound of our wails and Cries filled the air.
+My Dad looked at Roberto and say "Go."
+Xav and I are left to lick our wounds 
+That never happened again.
+
+<iframe width="100%" height="300" scrolling="no" frameborder="no" allow="autoplay" src="https://w.soundcloud.com/player/?url=https%3A//api.soundcloud.com/tracks/528561318&color=%23ff5500&auto_play=false&hide_related=false&show_comments=true&show_user=true&show_reposts=false&show_teaser=true&visual=true"></iframe>
+
+
+
+
+
 ### Markdown
 
 Markdown is a lightweight and easy-to-use syntax for styling your writing. It includes conventions for
